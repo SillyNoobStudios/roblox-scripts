@@ -16,5 +16,5 @@ A example of a leaderstats for a roblox game
 ---
 
 Any issues you can not solve you can contact me on one of my contacts
-○ Discod: Rose!#9460
-○ Roblox: risetothetop_2127
+○ Discod: therealdevrose
+○ Roblox: therealdevrose
